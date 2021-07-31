@@ -1,4 +1,4 @@
-Hello, I see that you are interested in my mod.
+Hello, I see that you are interested in my mod. Here is the link to thw mcreator website https://mcreator.net/modification/77152/cowerite-mod.
 There are some things I suggest you know about before downloading it
 
 
